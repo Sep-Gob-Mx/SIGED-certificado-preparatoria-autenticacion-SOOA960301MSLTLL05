@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SOOA960301MSLTLL05
+SOOA960301MSLTLL05
